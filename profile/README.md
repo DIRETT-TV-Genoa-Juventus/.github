@@ -1,5 +1,9 @@
-<h1>[[DIRETTＡ/TV]] Genoa - Juventus ＩＮ ＤＩＲＥＴＴＡ Ｓｔｒｅａｍｉｎｇ Ｇｒａｔｉｓ １７ ｍａｒｚｏ ２０２４</h1>
 Diretta Juventus-Genoa ore 12:30: dove vederla in tv, in streaming e formazioni ufficiali
+
+<strong>🔴IN DIRETTA▶ [Genoa - Juventus in Diretta Streaming](https://sports2tv.live/seriea/)</strong>
+
+<strong>🔴IN DIRETTA▶ [Genoa - Juventus in Diretta Streaming](https://sports2tv.live/seriea/)</strong>
+
 I bianconeri di Allegri affrontano la squadra di Gilardino per rialzare la testa dopo un periodo complicato La Juventus è pronta a tornare in campo per ritrovare i tre punti ed uscire da un periodo complicato dove è arrivata una sola vittoria nelle ultime sette partite. I bianconeri scendono in campo all'Allianz Stadium alle 12:30 per affrontare il Genoa di Gilardino. Nella conferenza stampa della vigilia Massimiliano Allegri, oltre a ribadire l'importanza della sfida, ha annunciato il forfait di Milik per un problema muscolare alla coscia sinistra. Il tecnico della Vecchia Signora potrà però tornare a contare su Rabiot, Perin e De Sciglio (che in stagione non ha ancora mai giocato). Per i bianconeri vincere sarebbe di fondamentale importanza in ottica Champions League per tornare ad avere il Bologna (che venerdì sera ha vinto contro l'Empoli) a -7. Dall'altro lato il Grifone cerca punti per evitare di essere ripreso dalle ultime della classifica. Dove vedere Juventus-Genoa: streaming e diretta tv
 Il match tra Juventus e Genoa è in programma all'Allianz Stadium di Torino alle 12:30. Sarà possibile seguire la partita in diretta tv su Sky Sport Uno (201), Sky Sport Calcio (251) e Zona DAZN. Il match sarà visibile anche in diretta streaming sulle rispettive applicazioni DAZN, Sky Go e Now.
 
